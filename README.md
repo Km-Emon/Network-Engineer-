@@ -1,0 +1,2 @@
+# Network-Engineer-
+Professional Skills:1.Network Connectivity Design &amp; Deployment.2.Microsoft Exchange Server Configure, Troubleshoot &amp; Solutions.3.Hardware Base Mail Server Implement&amp; Troubleshooting 4.NAS Backup System Implement 5.Video Conference System 6.Fiber Connectivity 7.Network Monitoring &amp; Managing 8.Network Troubleshooting &amp; Solution.9.Hardware Troubleshooting &amp; Maintenance
